@@ -9,7 +9,7 @@ Talking about Personal Stuffs!
 - 📫 How to reach me: kamanurag5@gmail.com
 - 😄 Pronouns: he/his/him
 - ⚡ Fun fact: Carrots🥕🥕 just might turn you orange.
-- 🏃 Trying to boost physical abilities by walking 5000 steps a day.
+- 🏃 Trying to boost physical abilities by walking 10,000 steps a day.
 - 📗 Improving mental skills by reading books. 
 - 🍕 Upgrading tasting skills by cooking different dishes. 
 
