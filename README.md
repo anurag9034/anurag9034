@@ -13,3 +13,6 @@ Talking about Personal Stuffs!
 - 📗 Improving mental skills by reading books. 
 - 🍕 Upgrading tasting skills by cooking different dishes. 
 
+🛠 Skills
+
+ReactJS, Angular, JavaScript(ES6), HTML5, CSS3, Bootstrap4, NgRx, Typescript, jQuery, Node JS, Express JS, Redux, AJAX, Responsive and mobile-first design, Figma.
