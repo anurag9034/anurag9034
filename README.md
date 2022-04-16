@@ -1,3 +1,5 @@
+![linkedin_banner](https://user-images.githubusercontent.com/97899907/163693250-4f1fc2c9-f9dd-4951-88e6-255f7ee8e6d4.png)
+
 ### Hi there 👋
 
 Talking about Personal Stuffs!
