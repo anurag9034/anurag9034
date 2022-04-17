@@ -1,4 +1,3 @@
-![linkedin_banner](https://user-images.githubusercontent.com/97899907/163693250-4f1fc2c9-f9dd-4951-88e6-255f7ee8e6d4.png)
 ![101705548-26d24600-3aad-11eb-96ba-a53161c82915(1)](https://user-images.githubusercontent.com/97899907/163699269-6bb48586-f635-4805-8d83-d248274ba838.jpg)
 
 ### Hi there 👋
